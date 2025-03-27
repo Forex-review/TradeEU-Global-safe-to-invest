@@ -1,0 +1,1 @@
+# TradeEU-Global-safe-to-invest
